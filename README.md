@@ -5,7 +5,8 @@ brokin and depresed by socity 💔💔💘💘😢😿😭😭
 - 📫 How to reach me by discord😁😁🤭🤭😉😉 ask phor cp onli and no caling gavirment ajency 😡😡🙏🏻🙏🏻
 dycord id Ddiv#2554
 ibstrgrem dipresed_guy_heart_lober_45
-
+in the new age of untrustfulness and treachery i shall not betray mt queen
+im not llke the other men
 <!---
 polimeraddivyeash/polimeraddivyeash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
